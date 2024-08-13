@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, I'm Nicky — a tech-savvy sales professional pivoting into the data and cloud world. 🚀 With roots in IT hardware sales and software field, I'm now channeling my analytical skills towards becoming a Data Analyst/Engineer, with a focus on leveraging cloud technologies. <br><br>📊☁️ Onward to innovation!
+Hello, I'm Nicky — a tech-savvy professional with a strong foundation in IT hardware and software sales. 🚀 As I evolve in the tech world, I'm harnessing my analytical skills and deepening my expertise in cloud technologies. I'm passionate about driving innovation and leveraging technology to solve complex problems. 📊☁️ Let's build the future, one cloud at a time!
 
 
 ## 🌐 Socials:
